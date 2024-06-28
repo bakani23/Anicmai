@@ -1,2 +1,2 @@
 # Anicmai
-hoje e sexta 
+hoje e sexta
